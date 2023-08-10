@@ -1,4 +1,4 @@
-### Find when to purpose using Math
+### Find when to propose using Math
 
 check out the article and use it for yourself
 
